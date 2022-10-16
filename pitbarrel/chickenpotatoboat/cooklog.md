@@ -54,9 +54,11 @@ Now the crux are the 2-3 folds (known as Grand Pappy's Double Fold) that must be
 Without two+ excellent folds, your potato boat will inevitably explode when you flip it over or otherwise handle it.
 
 ![fold2 is critical](photos/fold2.png)
+
 Do not skimp on those side folds, if it takes it, fold up that last edge.
 
 ![fold3 is assurance](photos/fold3.png)
+
 Finally fold the ends. Be sure to get at least two awesome folds for boat safety.
 
 ![fold the ends](photos/fold4.png)
@@ -92,9 +94,11 @@ After another 15 minutes (45 minutes into trip), turn (not flip) the chicken aga
 ![sauce us](photos/sauceus.png)
 
 Get your Stubb's out.
+
 ![sauce](photos/sauce.png)
 
 Get those thighs hot.
+
 ![temp](photos/temp.png)
 
 
