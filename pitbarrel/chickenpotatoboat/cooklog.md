@@ -73,7 +73,7 @@ We start and end with skin side up.
 
 ![release the chicken](photos/release.png)
 
-![to the grill](photos/release2.png)
+![to the grill](photos/releaseb.png)
 
 Add the potato boat beside the thighs.
 
