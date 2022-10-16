@@ -1,5 +1,5 @@
 # A Cook Log - Pit Barrel Chicken Thighs and Potato Boat
-This photo essay captures the sunday afternoon cook of chicken thighs and potatoes (in boat format).
+This photo essay captures the weekend afternoon cook of chicken thighs and potatoes (in boat format).
 
 ## Light the Pit Barrel Cooker
 Use just forty (40) briquettes in the chimney to get the BBQ lit.  
